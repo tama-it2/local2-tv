@@ -9,7 +9,9 @@
 * サブカル聖地：中野ブロードウェイ
 * 歴史：明治時代にスパイ養成学校ができる
 * 芸術・文化：中野ゼロホール
+
 [dメニュー ニュース](https://topics.smt.docomo.ne.jp/article/yesnews/trend/yesnews-yes33162?redirect=1)
+
 >「台湾文化祭が、東京都中野区に会場を移して初開催することが決定。」
 
 条件：
